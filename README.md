@@ -6,5 +6,5 @@
 ###  Key Tips for a Perfect Brew
 1.  Use Fresh, Filtered Water.
 2.  Get the Right Balance of Coffee and Water.
-3.  Keep Equipment Clean.
+3.  Keep Equipment Clean\
 ***With attention to detail and quality, every cup can be your perfect cup of coffee.***
